@@ -1,1 +1,2 @@
-# Fernando-Boudourian-y-el-poder-de-la-conexi-n
+# Fernando-Boudourian-y-el-poder-de-la-conexión
+Fernando Boudourian plantea una visión de liderazgo digital que prioriza la sensibilidad humana por encima de la automatización ciega. La inteligencia artificial puede ser una gran aliada si se la guía con valores sólidos. En un entorno cada vez más acelerado, propone liderar con calma, integridad y sentido común. La verdadera conexión es la que transforma.
